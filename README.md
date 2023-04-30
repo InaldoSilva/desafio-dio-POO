@@ -1,4 +1,4 @@
-Gostaria de aragdecer a Digital Innovation Oe pela oprtunidade
+Gostaria de aragdecer a Digital Innovation One pela oprtunidade
 de elevar meu conhecimento, e aumentar minhas chances de
 me tornar um desenvolvedor.
 
